@@ -1,0 +1,1 @@
+# hegemonia2026.github.io
